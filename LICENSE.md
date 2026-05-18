@@ -1,4 +1,4 @@
-#  
+#  Custom escape tsunami for brainrots script is the best escape tsunami for brainrots script with unlimited stamina and undetectable. Safe, reliable, and optimized for maximum
 
 
 
